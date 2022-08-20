@@ -5,6 +5,8 @@
 
 - 👨‍💻 All of my projects are available at [https://github.com/Santanujana2001](https://github.com/Santanujana2001)
 
+- 📫 How to reach me **sanujana7551@gmail.com**
+
 - 📄 Know about my experiences [https://drive.google.com/file/d/1V2-Tqix4djeLJt6p41xpQBAyoRS6iEM_/view?usp=sharing](https://drive.google.com/file/d/1V2-Tqix4djeLJt6p41xpQBAyoRS6iEM_/view?usp=sharing)
 
 - ⚡ Fun fact **One Day I Will Be Both Gamer And The Developer For The Same Game**
