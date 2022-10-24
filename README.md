@@ -40,5 +40,3 @@
 <h3 align="left">Support:</h3>
 <p><a href="https://www.buymeacoffee.com/santanujana"> <img align="left" src="https://cdn.buymeacoffee.com/buttons/v2/default-yellow.png" height="50" width="210" alt="santanujana" /></a></p><br><br>
 <br>
-
-[![@sanujana7551's Holopin board](https://holopin.me/sanujana7551)](https://holopin.io/@sanujana7551)
